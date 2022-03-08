@@ -9,6 +9,9 @@
 
 - ⚡ Fun fact **I think that I can read your mind**
 
+- 💬 Ask me about if you see bad code  **Why did you do that, man? My eyes, it seems I can't see anything anymore! Or just praise me for good code. 😊**
+
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://instagram.com/https://www.instagram.com/xmavrin/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="https://www.instagram.com/xmavrin/" height="30" width="40" /></a>
