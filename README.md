@@ -7,9 +7,7 @@
 
 - 📫 How to reach me **xmavrin@gmail.com**
 
-- ⚡ Fun fact **I think that I can read your mind**
-
-- 💬 Ask me about if you see bad code  **Why did you do that, man? My eyes, it seems I can't see anything anymore! Or just praise me for good code. 😊**
+- 💬 I accept criticism and advice with pleasure! Looking for an experienced mentor!
 
 
 <h3 align="left">Connect with me:</h3>
